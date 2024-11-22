@@ -1,0 +1,2 @@
+# pertama
+projek portofolio saya
